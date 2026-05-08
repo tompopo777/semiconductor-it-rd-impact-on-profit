@@ -1,0 +1,1 @@
+# semiconductor-it-rd-impact-on-profit
